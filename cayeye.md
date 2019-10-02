@@ -16,4 +16,4 @@
 
 2. Grate a piece of coastal cheese, I recognize that I like cayeye with a lot of cheese hehe ... Once the bananas are soft, we take them out of the pot and we crush them with a fork. We add cheese to taste and a few tablespoons of the cooking water, crush the bananas well and make sure that the cayeye feels soft and light. Add the butter and a little more cheese on the mash. We serve immediately. The puree should be eaten immediately, if we leave it for a long time, it becomes heavy and compact.
 
-7. Enjoy!
+3. Enjoy!
