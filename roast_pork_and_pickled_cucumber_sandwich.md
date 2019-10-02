@@ -2,15 +2,15 @@
 
 ## Ingredients
 
-1 pound boneless pork loin
-1/2 teaspoon cayenne pepper 
-kosher salt and black pepper 
-1 cucumber, thinly sliced 
-3 tablespoons cider vinegar 
-2 tablespoons olive oil 
-2 teaspoons brown sugar 
-1/3 cup mayonnaise 
-4 Portuguese rolls, split
+* 1 pound boneless pork loin
+* 1/2 teaspoon cayenne pepper 
+* kosher salt and black pepper 
+* 1 cucumber, thinly sliced 
+* 3 tablespoons cider vinegar 
+* 2 tablespoons olive oil 
+* 2 teaspoons brown sugar 
+* 1/3 cup mayonnaise 
+* 4 Portuguese rolls, split
 
 # How to Make It
 ## Step 1
